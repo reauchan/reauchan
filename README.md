@@ -2,11 +2,11 @@
 <img width="40%" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/mine/ezgif-6bd2079f367154.gif"><br>      
 <img width="5%" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/mine/clock.gif">
 <sup>sore/reau <b>19</b> wlw🍊 </sup><br>
-<sup><b>italian</b> 15.07 <img width="5%" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/mine/letters.gif"> doll</sup><br>
-<img src="https://views-counter.vercel.app/badge?pageId=reauchan&leftColor=9e8465&rightColor=ffffff&type=total&label=sweet%20peopl&style=lower" alt="Views Counter">
+<sup><b>italian</b> 15.07 <img width="5%" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/mine/letters.gif"> doll</sup>   
+   
+![](https://komarev.com/ghpvc/?username=reauchan&color=806346&label=sweet-people)
 </p>
 <br>
-
 </details>
 <p align=left>
 <details>
