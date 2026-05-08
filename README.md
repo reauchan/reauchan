@@ -1,16 +1,17 @@
-## Hi there 👋
+<p align="center">  ຼ💉ᚐ<sup><b><a href="https://rentry.co/reauchan">read rentry</a> • <a href="https://secco.atabook.org">atabook</a></b></sup> <br>                                                
+<img width="40%" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/mine/ezgif-6bd2079f367154.gif"><br>      
+<img width="5%" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/mine/clock.gif">
+<sup>sore/reau <b>19</b> wlw🍊 </sup><br>
+<sup><b>italian</b> 15.07 <img width="5%" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/mine/letters.gif"> doll</sup><br>
+<img src="https://views-counter.vercel.app/badge?pageId=reauchan&leftColor=9e8465&rightColor=ffffff&type=total&label=sweet%20peopl&style=lower" alt="Views Counter">
+</p>
+<br>
 
-<!--
-**reauchan/reauchan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+</details>
+<p align=left>
+<details>
+   <summary>cliiick!!</summary>
 
-Here are some ideas to get you started:
+<img width="10%" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/mine/chair"> ～ haaihiia. basic dni. do INT if we share same interests!! (check on rentry for my interests) I'm a gentle soul, I promise. I'm usually very shy.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+</details>
