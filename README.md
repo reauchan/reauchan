@@ -12,6 +12,6 @@
 <details>
    <summary>cliiick!!</summary>
 
-<img width="10%" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/mine/chair"> ～ haaihiia. basic dni. do INT if we share same interests!! (check on rentry for my interests) I'm a gentle soul, I promise. I'm usually very shy.
+<img width="10%" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/mine/chair"> ～ haaihiia. basic dni. do INT if we share same interests!! (check rentry) I'm a gentle soul, I promise. I'm usually very shy. more info on rentry okay..! 
 
 </details>
