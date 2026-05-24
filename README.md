@@ -12,6 +12,6 @@
 <details>
    <summary>cliiick!!</summary>
 
-<img width="10%" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/mine/chair"> ～ haaihiia. basic dni. do INT if we share same interests!! I'm not mean, usually. I'm shy with new people. more info on rentry ok..
+<img width="10%" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/mine/chair"> ～ haaihiia. basic dni. do INT if we share same interests!! I'm not mean, usually. I'm shy with new people. more info on rentry ok..[talk about jotakak here 😳](https://jotaro.atabook.org)
 
 </details>
