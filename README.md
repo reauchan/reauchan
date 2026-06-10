@@ -1,4 +1,4 @@
-<p align="center">  ຼ💉ᚐ<sup><b><a href="https://rentry.co/reauchan">read rentry</a> • <a href="https://immortal.atabook.org">atabook</a></b></sup> <br>                                                
+<p align="center">  ຼ💉ᚐ<sup><b><a href="https://rentry.co/reauchan">read rentry</a> • <a href="https://cut.atabook.org">atabook</a></b></sup> <br>                                                
 <img width="35%" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/mine/ezgif-6bd2079f367154.gif"><br>      
 <img width="5%" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/mine/clock.gif">
 <sup>sore/reau <b>19</b> wlw🍊 </sup><br>
